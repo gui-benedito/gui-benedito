@@ -1,4 +1,4 @@
-### Hi there, i'm Guilherme benedito 👋
+### Hi there, i'm Guilherme Benedito 👋
 
 ---
 
